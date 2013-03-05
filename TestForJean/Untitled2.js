@@ -1,1 +1,1 @@
-//From GitHub2﻿
+//From GitHub2
